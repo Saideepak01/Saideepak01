@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **pvsai609@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1IiWo5nLIo6xCctXRUqPqQAkya3BoP8dk/view?usp=drive_link](https://drive.google.com/file/d/1IiWo5nLIo6xCctXRUqPqQAkya3BoP8dk/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Hz-G7T05Ggup25QczCMxksnFqlRMEFP1/view?usp=drive_link](https://drive.google.com/file/d/1Hz-G7T05Ggup25QczCMxksnFqlRMEFP1/view?usp=drive_link)
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
