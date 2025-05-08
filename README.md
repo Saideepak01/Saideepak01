@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=saideepak01&label=Profile%20views&color=0e75b6&style=flat" alt="saideepak01" /> </p>
 
-- 🔭 I’m currently working at **Animaker**
+- 🔭 I’m currently working at **Growfin**
 
 - 📝 I regularly write articles on [https://saideepak26.medium.com/](https://saideepak26.medium.com/)
 
