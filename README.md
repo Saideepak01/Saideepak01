@@ -9,5 +9,4 @@
 
 - 📫 How to reach me **pvsai609@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1ynLa3ASWLLVOSRnr19Vv8J6rhTlo6N7s/view?usp=sharing](https://drive.google.com/file/d/1ynLa3ASWLLVOSRnr19Vv8J6rhTlo6N7s/view?usp=sharing)
-
+- 📄 Know about my experiences [https://drive.google.com/file/d/1SeKfJwky4IdffzGdi0RUnr4Op0g4nc7x/view?usp=sharing](https://drive.google.com/file/d/1SeKfJwky4IdffzGdi0RUnr4Op0g4nc7x/view?usp=sharing)
